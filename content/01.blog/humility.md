@@ -1,5 +1,12 @@
 # Humility
 
+Paul hopes that the Corinthians will change their attitude towards him and his credentials as an apostle so that he may come to them in gentleness, not severity.
+But I beg you that when I am present I may not be bold with that confidence by which I intend to be bold against some, who think of us as if we walked according to the flesh.
+
+a. I intend to be bold against some: Some reminds us that we shouldn’t think that all the Corinthian Christians had a bad opinion of Paul. It may have been merely a vocal minority.
+
+b. Who think of us as if walked according to the flesh: This is another aspect of the accusations made against Paul by some of the Corinthian Christians. They said he was a man who walked according to the flesh.
+
 "Herein the apostle hath set a rule and a pattern to all churches, where are multitudes that walk disorderly; not to be too hasty in excommunicating them, but to proceed gradually; first using all fair means, and waiting with all patience, for the reducing them to their duty, who will by any gentle and fair means be reduced; and then revenging the honour and glory of God only upon such as will not be reclaimed.” (Poole)
 
 In **2 Corinthians 10**, the "Corinthian troublemakers" appear to be a group within the church who were challenging Paul’s authority and legitimacy as an apostle. These individuals, often referred to as **false apostles** or **super-apostles** (see **2 Cor 11:5, 13-15**), were causing division by promoting a more worldly, boastful, and status-driven form of leadership, in contrast to Paul's humility and suffering for Christ.
