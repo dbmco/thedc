@@ -1,4 +1,6 @@
-# 2 Corinthians 10
+# Humility
+
+"Herein the apostle hath set a rule and a pattern to all churches, where are multitudes that walk disorderly; not to be too hasty in excommunicating them, but to proceed gradually; first using all fair means, and waiting with all patience, for the reducing them to their duty, who will by any gentle and fair means be reduced; and then revenging the honour and glory of God only upon such as will not be reclaimed.” (Poole)
 
 In **2 Corinthians 10**, the "Corinthian troublemakers" appear to be a group within the church who were challenging Paul’s authority and legitimacy as an apostle. These individuals, often referred to as **false apostles** or **super-apostles** (see **2 Cor 11:5, 13-15**), were causing division by promoting a more worldly, boastful, and status-driven form of leadership, in contrast to Paul's humility and suffering for Christ.
 
